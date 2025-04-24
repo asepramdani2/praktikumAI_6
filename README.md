@@ -1,4 +1,3 @@
-Tentu! Berikut adalah versi yang telah diparafrase:
 
 # Tugas-CF-Fuzzy_Logic
 
